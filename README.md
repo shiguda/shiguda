@@ -2,7 +2,8 @@
   <img width="500px" src="https://i.postimg.cc/KcqmFpHM/30.png"/> </br> <br><br>
   𝙆𝙖𝙩𝙝𝙚𝙧𝙞𝙣𝙚　ₒᵣ　𝘼𝙩𝙩𝙞𝙘𝙪𝙨 </br>
   <a href="https://rentry.co/shiguda">ren</a>try　﹒　<a href="https://rentry.co/vilefantasy">ata</a>book　﹒　<a href="https://pronouns.cc/@sigzai">prns</a>.cc </br>
-  sigzai pilled ( ˘͈ ᵕ ˘͈♡) </br> 
+  sigzai pilled ( ˘͈ ᵕ ˘͈♡) </br>
+<a href="https://sigzai.neocities.org">about me & commissions</a> </br>
     <img width="250px" src="https://files.catbox.moe/83nvqt.png"/> </br>
 <img width="333px" src="https://i.postimg.cc/kMfcFxLv/IMG-1071.png"/>
 </br>
