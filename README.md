@@ -1,7 +1,7 @@
 <p align="center">
   <img width="500px" src="https://i.postimg.cc/KcqmFpHM/30.png"/> </br> <br><br>
   𝙆𝙖𝙩𝙝𝙚𝙧𝙞𝙣𝙚　ₒᵣ　𝙄𝙖𝙣 </br>
-  <a href="https://rentry.co/shiguda">ren</a>try　﹒　<a href="https://rentry.co/vilefantasy">ata</a>book　﹒　<a <a href="https://sigzai.neocities.org/en">com</a>ms </br>
+  <a href="https://rentry.co/shiguda">ren</a>try　﹒　<a href="https://rentry.co/vilefantasy">ata</a>book　﹒　<a <a href="https://chlorinated-sheet-58b.notion.site/rina-318a0b59f058809d84eec28ea7ac4e74">com</a>ms </br>
   sigzai pilled ( ˘͈ ᵕ ˘͈♡) </br>
     <img width="250px" src="https://files.catbox.moe/83nvqt.png"/> </br>
 <img width="333px" src="https://i.postimg.cc/kMfcFxLv/IMG-1071.png"/>
