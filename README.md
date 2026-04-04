@@ -12,4 +12,6 @@ generally no dni since i curate my own space, but anything connected to race/gen
 
 thin ice are fictkins/irls and yumes, i wont affirm nor treat your "identity"/"relationship" as a fact, it is illogical to me. dont talk to me about it either, its fucking annoying </br>
 
+i dont fancy theistic religions, call me xenophobic idc
+
 i may not be very active on pony town since i am very busy with studies and work </br>
