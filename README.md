@@ -1,7 +1,7 @@
 > dni in my name - likely my public chats are off </br>
 
 > suspected major depressive disorder
-
+<img src="https://files.catbox.moe/rfs45u.jpeg" alt="image" />
 iwec not because im sensitive, but because i may make dark and uncomfortable jokes. it is part of my humour and if it makes you uncomfortable, either tell me or dont talk to me. </br>
 
 im a pro/dark/comshipper all combined and profiction. antis dni, pls curate your own online experience </br>
