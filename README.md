@@ -1,5 +1,5 @@
 <p align="center">
-<img alt="1" src="https://file.garden/afMNaszj4BOnPmsW/bsd/chuaku/transparent/1.png"/> <br>
+<img alt="1" src="https://file.garden/afMNaszj4BOnPmsW/rentry/other/2.webp"/> <br>
 <img alt="1" src="https://komarev.com/ghpvc/?username=shiguda&style=for-the-badge&color=grey&label=treats&abbreviated=true&base=5480"/> <br>
 𝒾an&nbsp;&nbsp;&nbsp;&nbsp;ₒᵣ&nbsp;&nbsp;&nbsp;&nbsp;𝓀atherine <br>
 <img width=15px alt="1" src="https://i.postimg.cc/5twSsys1/IMG_1952.gif"/>&nbsp;&nbsp;&nbsp;&nbsp;parafem&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;pupgirlic&nbsp;&nbsp;&nbsp;&nbsp;<img width=15px alt="1" src="https://i.postimg.cc/zXtthycc/IMG_1966.webp"/><br>
